@@ -14,7 +14,7 @@
 - - - -
 #### 推荐广告
 
-#### 各平台安装包下载（请在浏览器中打开）
+#### 点击下方蓝字, 下载安卓加速器
 
 #### :arrow_double_down: [Android 版本.APK](http://share.456vpn.vip/xgvpn.html?t=u5q6ok55)
 
